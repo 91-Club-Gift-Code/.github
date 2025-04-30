@@ -23,7 +23,7 @@ Your reward will reflect instantly in your wallet!
 
 Want more **91 Club Gift Code Free** drops? Here are three smart ways:
 
-- ✅ Join our [Telegram Channel for 91 Club Codes](http://t.me/91ClubCodes)  
+- ✅ Join our [Telegram Channel for 91 Club Codes](https://telegram.me/+HGKqO1sq5tI5Mzll)  
 - ✅ Follow our social handles for daily updates  
 - ✅ Visit this page regularly for fresh codes  
 
